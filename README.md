@@ -11,8 +11,8 @@ Bạn đang tìm kiếm dịch vụ **thuê xe Sài Gòn đi Vũng Tàu** an to�
 ## 📌 Bảng Giá Thuê Xe  
 | Loại Xe  | Giá (VND) |
 |----------|----------|
-| 4 Chỗ    | 1.200.000 |
-| 7 Chỗ    | 1.400.000 |
+| 4 Chỗ    | 890.000 |
+| 7 Chỗ    | 990.000 |
 | 16 Chỗ   | 1.800.000 |
 
 ## 📍 Liên Hệ  
